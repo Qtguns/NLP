@@ -1,1 +1,1 @@
-new journey
+new journey is a
